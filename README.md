@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @manorup
+- 👀 I’m interested in VC, DeFi, Tokenization & Crypto-assets.
+- 🌱 I’m currently learning about Tokenization on RWAs and CCIP.
+- 💞️ I’m looking to network with you and join new crypto job opportunities.
+- 📫 How to reach me https://www.linkedin.com/in/andreacastellaneta
